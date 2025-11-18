@@ -1,0 +1,1 @@
+# Altium-Designer-No-Trial
